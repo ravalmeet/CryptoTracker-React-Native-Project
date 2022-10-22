@@ -11,7 +11,7 @@ You can Also Add currencies into Your Assets and Filter Your Profile and Loss St
 
 
 
-![Screenshot](https://pbs.twimg.com/media/FftAELlaEAA4AN4?format=jpg&name=large)
+![Screenshot](https://pbs.twimg.com/media/FftIN6vagAAD-x7?format=jpg&name=large)
 
 
 
